@@ -1,2 +1,0 @@
-yyuyuyuyuyuyuyu
-ugigiyguygyugyu
